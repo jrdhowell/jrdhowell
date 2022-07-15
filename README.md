@@ -1,1 +1,1 @@
-Hi, I am Jared. I have a mathematics background and enjoy the problem solving involved with coding. I look forward to adding different projects I have worked on here. I hope you enjoy and maybe can find them useful.
+I look forward to adding different projects I have worked on here. I hope you enjoy and maybe can find them useful.
